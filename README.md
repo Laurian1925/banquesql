@@ -6,6 +6,6 @@ MEMBRES DU GROUPE:
 
 -EBEDE Lauriane
 
--KOBOTCHO Flora
+-KOBOTCHOU Flora
 
--TCHAUBOU Jaurel
+-TCHOAUMBOU Jaurel
